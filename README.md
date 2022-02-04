@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @k0siaraProjects
+- 👀 I’m interested in playing game
+- 🌱 I’m currently learning yy.. a lot
+- 💞️ I’m looking to collaborate on building house in game
+- 📫 How to reach me - my base is at -2137 69 -1000 coordinates
+- 🍽️ I'm currently eating naleśniki z dżemem
